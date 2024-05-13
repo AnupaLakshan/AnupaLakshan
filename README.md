@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm studying Electrical Engineering.<br>
+I'm Bsc(Hons)Electrical Engineering undergratuate student.<br>
 
 
 ## 🌐 Socials:
